@@ -1,0 +1,1 @@
+# gammal-tech-product-ideation
